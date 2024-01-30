@@ -1,2 +1,2 @@
-# Undecima-Legija
-Legion navigator
+# Join us
+
